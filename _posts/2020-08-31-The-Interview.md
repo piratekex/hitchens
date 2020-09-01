@@ -1,0 +1,27 @@
+I was thinking so long, what should I write this week. There are so many old stories, and most of them are freaking funny, but I think I will just share one, which is just a good memory.
+
+This story took place in 2017. I can&#39;t remember the exact date, but it was around the beginning of August. My contract with the restaurant was slowly coming to an end. I was full of hope, I had a goal: I wanted to be a barista in London. I sent my CV to a lot of places, but only one replied to me. I remember I was so happy all day, till I realised, London is almost 8 hours away. At that time I had just 1 day off per week, so I had to be clever. Thankfully I was surroundedby good people, and they helped me make it to the interview.
+
+First of all because my shift was 7am till 9pm (plus cleaning), there was no bus service to Plymouth, but our bar manager gave me a lift to Kingsbridge, where I met with one of the waitresses who was not working at the following day, and could give me a ride to Plymouth.
+
+When we arrived to the city pretty much everything was closed, we had a couple of drinks at a local bar, but that was closing soon. Unfortunately, my company had to leave, because it was very late and she had university the following day. So I was left alone in the cold Plymouth night. My bus was departing at 1am. I still had a few hours to kill.
+
+I ended up walking around the city. The roads were dead. There was not a single soul on the streets. I was tired and hungry. While I was roaming the empty streets I found a place which was open for 24 hours. It was kind of a university bar or something. There was junk food, which was very overpriced, and coffee. Oh, yes, I thought I can have some coffee, it will keep me awake and warm me up. Well there were a lot of coffee drinks on the menu. I saw the method they were making that black pissthat they were calling coffee, and I was not impressed one bit about the fact that they are still allowed to be open.
+
+I tried to order one with some chilli, just to get some taste out of it, but I was informed thatit was not available right now. After 10 minutes I was aware of there is nothingavailable except the one with maple syrup. I kindly ordered the drink asking just for the tiniestamount of syrup that he could possibly put in the drink. Well, let&#39;s just say there was more syrup in that cup than black water, because you can&#39;t call that coffee either.
+
+The time passed slowly, and at around 20 minutes passed midnight, I made my move to the coach station. I was soo relieved when I finally could sit down on the bus, it was warm and I fell asleep immediately. After 5 hours, I was woken up by the noise of the other passengers. Yes, we had arrived. Here I was, in &quot;The City&quot;, now I just had to figure out what I could do until 11am.
+
+I ended up walking from the Victoria coach station to Soho. I spent a lot of time just being amazed by morning in London, taking so many pictures, watching the sun rising. I was in love, this love is still in my heart. London is the place where I belong, it can be harsh, it is changing a lot, I am changing a lot, but it will still my favourite place on earth.
+
+After a couple of hours of walking, i find a place what I haven&#39;t seen before. That was the crosstown doughnuts in Soho. I ended up eating a nice doughnut and having a coffee, finally I had a coffee. It was unbelievable, and so good. I spent another hour sitting there and chatting with the staff, till there was just 20 minutes left to my interview. So I kindly thanked them for the coffee and left.
+
+There it was, I was standing in front of the biggest Tap coffee shop, the 193. My heart was racing, and I was shaking. I slowly entered the building and someone greeted me with a smiley face and I forgot my own name at that point. It took me a minute or so, which felt like an eternity, to finally tell them who I was and why I was there, but it was fine, and later the interview went well. They asked me if I just travelled that far for that particular interview, I didn&#39;t want to look like an idiot, so I said no, I have a couple more, but I am sure they saw through me.
+
+So, I basically travelled a lot just to show my skills, they put me on a quick trial to see my barista skills in person. I wasn&#39;t that fast because I had just cut of the end of my finger a couple of days earlier, but they liked me.
+
+After I left and I met up some old friends from the time when I first moved to London a year ago, but that didn&#39;t go well and I ended up moving back to Hungary, that is a different story...
+
+So I met with my friends and while we were visiting the Harry Potter store at the King&#39;s Cross station, I received a text from the shop, they were telling me I was really good, but I was living too far away, if I could move to London they would hire me. I replied immediately with the answer: when do they want me to start? I could move to London at the end of the month, when my contract terminates. There were a couple of messages to make sure I was able to move to London, but I think my answers revealed I would do anything just to be hired, so they did. I was happy. I could move to London, and I was already hired at my favourite company. I felt like the king of the world. I still had to tell the owners of the restaurant I was leaving on a specific day, but that time nothing could ruin my happiness.
+
+This is the story of the end of my summer 2017 when I moved to London. When everything started. The good and the bad...
