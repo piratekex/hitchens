@@ -1,3 +1,8 @@
+---
+layout: post
+title: "The Interview"
+---
+
 I was thinking so long, what should I write this week. There are so many old stories, and most of them are freaking funny, but I think I will just share one, which is just a good memory.
 
 This story took place in 2017. I can&#39;t remember the exact date, but it was around the beginning of August. My contract with the restaurant was slowly coming to an end. I was full of hope, I had a goal: I wanted to be a barista in London. I sent my CV to a lot of places, but only one replied to me. I remember I was so happy all day, till I realised, London is almost 8 hours away. At that time I had just 1 day off per week, so I had to be clever. Thankfully I was surroundedby good people, and they helped me make it to the interview.
