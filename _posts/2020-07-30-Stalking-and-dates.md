@@ -11,7 +11,7 @@ For example, if someone knows you, and you might have depression and just got ba
 
 So you have your drinks, and decide to go home, feeling unwell, walking around the area without a destination. Well you have to be careful with that because you might get just labelled as a stalker for a lifetime.
 
-Anyway, my point is I love working, but our shop is located in another shop, so we can’t open yet, but someone from our company found a video, where a man was making latte art by pouring the milk out of a bottle.
+Anyway, I love working, but our shop is located in another shop, so we can’t open yet, but someone from our company found a video, where a man was making latte art by pouring the milk out of a bottle.
 
 We got the challange to do the same, I am at home so I don’t have any special equipment, and I made a deal: if I can make it, I can have a pop up coffee stand.
 
